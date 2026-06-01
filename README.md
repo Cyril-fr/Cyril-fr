@@ -1,4 +1,4 @@
-# Hi, I'm Cyril Balnoma Dassah 👋
+# Hi, I'm Cyril Balnoma Dassah 
 
 **Mining Engineer · AI & ML Practitioner · University of Mines and Technology (UMaT), Tarkwa, Ghana**
 
